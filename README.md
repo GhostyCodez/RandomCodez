@@ -1,2 +1,2 @@
 # RandomCodez
-get it... cause I'm ghostycodez... please get it
+get it, cause my name is ghostycodez
